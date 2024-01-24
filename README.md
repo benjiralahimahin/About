@@ -1,1 +1,8 @@
-# About
+- 👋 Hi, I’m Benjir Alahi
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning Cybersecurity 
+- 💞️ I’m looking to collaborate on Cybersecurity Team
+- I'm Graphic Designer with 7 yr of experience and an Animator.
+-  📫 How to reach me ; mail me benjiralahi.me@gmail.com
+- 😄 Pronouns: He
+- 
